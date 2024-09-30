@@ -16,3 +16,6 @@ Jika tidak: Proses selesai.
 
    
  ![yulius pune (1)](https://github.com/user-attachments/assets/b8158ac4-4c0a-4331-9046-4996ccb248a6)
+
+ 
+![Cuplikan layar 2024-10-01 002011](https://github.com/user-attachments/assets/49878ed3-9c81-470a-81f9-7add090213d9)
